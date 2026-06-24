@@ -1,0 +1,1 @@
+# ScalarStrength-privacypolicy
